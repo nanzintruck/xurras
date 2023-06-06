@@ -11,7 +11,7 @@ olá gurizada sou Renan Mengue estudo no colégio civico miletar tarquinino sant
 ![](https://media.tenor.com/gCINECAxYQ8AAAAC/baphomet-magick.gif)
 
 
-
+![](https://media.tenor.com/9FZbiGqnX_sAAAAM/bruno-henrique.gif)
 
 
 
